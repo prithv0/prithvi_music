@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 LB Music 」──
+    ──「 𝒑𝒓𝒊𝒕𝒉𝒗𝒊𝒋𝒊𝒕 ✘ 𝒎𝒖𝒔𝒊𝒄 」──
 </h2>
 
 <p align="center">
